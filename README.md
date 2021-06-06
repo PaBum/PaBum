@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @PaBum
+- 👀 I’m interested in making games and mobile apps
